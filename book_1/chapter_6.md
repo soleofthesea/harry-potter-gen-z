@@ -1,4 +1,4 @@
-Harry had to go back to the Dursleys for the next month and it was totes not chillax. Good thang was that Dudley was now so baka'ed by Harry that he social distanced from him like it was 2020 all over again, while his aunt and uncle ghosted him and pretended he didn't exist. It was cool for a bit, but soon it was a major bummer what with everyone acting like he was canceled.
+Harry had to go back to the Dursleys for the next month and it was totes not chillax. Good thang was that Dudley was now so bamboozled by Harry that he social distanced from him like it was 2020 all over again, while his aunt and uncle ghosted him and pretended he didn't exist. It was cool for a bit, but soon it was a major bummer what with everyone acting like he was canceled.
 
 Harry thankfully had his new owl to keep him vibin'. He decided to call her Hedwig cuz that was a cool sounding name he thought that he fished out of a book, which speaking of, were totes interesting which was unusual because they were school books, but whatevs. Channeling lofi energy he stayed up late, but instead of Fortnite he simply read, and sometimes Hedwig would bring him a dead mouse, the furry kind.
 
