@@ -44,3 +44,24 @@ Indeed it seemed platform 9 3/4 was channeling some major Bielefeld energy.
 
 "Ok boomer" said Harry. But he still had the problem that he did not know how to get on the train. He looked at his wrist and checked his digital watch, because the clock at Kings Cross was those old timey ones with the round face and the numbers in a circle and arrows pointing at them and he could not read it. He only had 10 minutes before the train yeeted!
 
+At this moment though a woman with a bunch of kids walked by Harry and something she said caught his attention.
+
+"Those Muggles I tell you, they are everywhere, you can't even walk two feet-"
+
+One of the kids the woman was with piqued up.
+
+"Mother, stop being so loud, the 'Muggles' can hear you."
+
+"Oh relax Ginny, all of them are busy looking at their smarty-phones anyway. And if they do see us then we just Obliviate them so who cares?"
+
+Harry shook his head. It seemed even with wizards boomers be boomerin'. He walked up to the woman and made himself known.
+
+"Excuse me madam..."
+
+"Hello dear. First year at Hogwarts?" said the woman. "Don't worry, my baby Ron is, too."
+
+"Can you tell me how to get to platform 9 3/4?"
+
+"Oh, it's very easy. You just bang your head against the wall, literally. And I really mean literally. Charge at the wall like you mean business."
+
+"OK" said Harry.
